@@ -1,3 +1,3 @@
 - 👋 Hi, I’m Akshaya K
-- 👀 I’m interested in UI/UX DESIGNING,DIGITAL MARKETING and PROGRAMMING
+- 👀 I’m interested in UI/UX DESIGNING,DIGITAL MARKETING,VIDEO EDITING and PROGRAMMING
 - 😄 Pronouns: She/Her
